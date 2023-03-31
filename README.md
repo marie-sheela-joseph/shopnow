@@ -13,6 +13,15 @@
 
 ![image](https://user-images.githubusercontent.com/92960836/229245511-0942134e-1eea-4345-84b7-7a24658fe798.png)
 
+Edit product 1 :
+
+![image](https://user-images.githubusercontent.com/92960836/229246099-31c95076-790a-49de-a1c4-0dd4f67a7930.png)
+
+
+![image](https://user-images.githubusercontent.com/92960836/229246195-e672f24d-bf58-458d-a6e6-cda87c7a6a45.png)
+
+
+![image](https://user-images.githubusercontent.com/92960836/229246266-56818cbc-201e-4447-a728-8da8952f84dc.png)
 
 
 
